@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @sul-tan-king
+- I am beginner coder looking forward to learning most of what i can learn
+- I am a chemical engg grad student
